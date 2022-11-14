@@ -1,2 +1,2 @@
-# Orozco-Fotograf-a
+# Orozco-Fotografía
 Fotografía Profecional
